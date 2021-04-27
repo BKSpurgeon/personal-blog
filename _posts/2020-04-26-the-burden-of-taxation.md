@@ -12,7 +12,7 @@ I was speaking to a gentleman, at church -- of all places. He had just started a
 
 "Advertising"
 
-He placed an ad in a catalogue, which was claiming exposure to 18,000 letter boxes. The result? Not a *single* call: his outlay was fruitless.
+He placed an ad in a catalogue, which was claiming exposure to 18,000 letter boxes. The result? Not a *single* call: his outlay was fruitless. 18,000 letter boxes? ......Right?!? Not sure whether the letter boxes were existing in their imaginations, but the hit-rate seems abysmally low. But that's what happens in the world of business. 
 
 "What next?""
 
