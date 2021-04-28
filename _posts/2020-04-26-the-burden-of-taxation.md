@@ -12,21 +12,21 @@ I was speaking to a gentleman, at church -- of all places. He had just started a
 
 "Advertising"
 
-He placed an ad in a catalogue, which was claiming exposure to 18,000 letter boxes. The result? Not a *single* call: his outlay was fruitless. 18,000 letter boxes? ......Right?!? Not sure whether the letter boxes were existing in their imaginations, but the hit-rate seems abysmally low. But that's what happens in the world of business. 
+He placed an ad in a catalogue, which was claiming exposure to 18,000 letter boxes. The result? Not a *single* call. The advertister claims 18,000 letter boxes?..........riiiight. The hit-rate seems abysmally low - I'm not saying that the advertiser is a liar, but I am saying that you can get your face ripped off in business. The trick is to move on:
 
 "What next?""
 
-"I tried to do my own marketing," he responded. "1000 notices, in 1000 letterboxes."
+"I tried to do my own marketing," he responded. "1000 notices."
 
 "And how did that prove?""
 
 "One sale!" he beamed. His smile reached from ear to ear. "My first!"
 
-"How are you going to succeed with just one sale?"
+"Nice. But how are you going to scale?"
 
-"Facebook Ads! But you have to be very careful on your spending. The money tends to fly away without results if you are not careful."
+"Facebook Ads!" and then he added: "You have to be really, really careful on how you spend. Money fly away if you are not careful."
 
-Sage advice.
+Sage advice, despite the choppy Malu-English.
 
 I noted to myself, that money is viewed very differently, if it is your own, and if you are seeking a return on it, than if you were a government department, spending someone else's money, with an indifference as to whether a return is generated. 
 
@@ -35,7 +35,7 @@ I saw and thought to myself: this is why no government department or bureaucracy
 But that doesn't stop our valiant and ever optimistic bureaucrats from engaging in such unprofitable ventures, in the GREAT REPUBLIC that is the SOCIALIST REPUBLIC of the COMMONWEALTH AUSTRALIA. All else who tried before were idiots, our current political leaders and bureaucrats have the wisdom and expertise to be the only ones in all human history to make a success out of it. 
 
 After hearing of his marketing spend, and his loses, I lamented: after all his hard work and toil, the government should unjustly rape him of his labours by taxing him in every way possible: company tax, pay roll tax, personal income tax, (indirect) bank taxes, capital gains tax, GST, and all the onerous compliance burdens associated with running a business (GST Business Activity Statements) ad naseaum etc. I suggested to him that it is much easier to become a government bureaucrat, and to "work from home" from 
-~~10 am - 3 pm~~ 9am - 5pm  on very important projects: projects done for the people and by the people. 
+~~11 am - 3 pm (lunch and tea breaks included)~~ 9am - 5pm  on very important projects: projects done for the people, and by the people, amen. 
 
 But he did not lament. His solution was sublime, and novel!
 
