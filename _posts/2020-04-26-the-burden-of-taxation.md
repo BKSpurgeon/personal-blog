@@ -55,4 +55,4 @@ It was then that I realised that our little socialist paradise is somewhat doome
 
 It is a miracle of life and business evolution that any business survives here. But not to worry, those that remain will soon be rendered extinct through a bi-partisan coalition of the Australian Labour Party, and the Liberal-National coalition: it's FINAL SOLUTION: to entirely eradicate the country of any private enterprise that is left. The goal is to make sure that every hard-working Aussie battler has free stuff given to him by the tax payer, or it's off to the gulags for you, son!
 
-Friedman was right: this is a government **by** the bureaucrat, **for** the bureaucrat. Little do they know - as has been amply demonstrated by my friend - that the tax payer is silently revolting: he's bolted from the stables. And the bureaucrat: he's still sound asleep.
+Friedman was right: this is a government **by** the bureaucrat, **for** the bureaucrat. Little do they know - as has been amply demonstrated by my friend - that the tax payer is silently revolting: he's bolted from the stables while the bureaucrat's still sound asleep.
