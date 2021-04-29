@@ -6,27 +6,27 @@ tags:
 - anecdotes
 ---
 
-I was speaking to a gentleman, at church -- of all places. He had just started a business, and was hustling for orders, as all good businessmen are wont to do. 
+I was speaking to a gentleman -- the who, where and when will remain unnamed (because I am a first-class journalist who protects my sources). He had just started a business, and was hustling for orders, as all good businessmen are wont to do. 
 
 "How are you getting your customers?" I asked.
 
 "Advertising"
 
-He placed an ad in a catalogue, which was claiming exposure to 18,000 letter boxes. The result? Not a *single* call. The advertister claims 18,000 letter boxes?..........riiiight. The hit-rate seems abysmally low - I'm not saying that the advertiser is a liar, but I am saying that you can get your face ripped off in business. The trick is to move on:
+He placed an ad in a catalogue, which was claiming exposure to 18,000 letter boxes. The result? Not a *single* call. The advertister claims 18,000 letter boxes?..........riiiight. The hit-rate seems abysmally low - I'm not saying that the advertiser is a liar, but I am saying that you can get your face ripped off in business if you're not careful. The trick is to move on:
 
 "What next?""
 
-"I tried to do my own marketing," he responded. "1000 notices."
+"I do marketing," he responded. "1000 notice."
 
 "And how did that prove?""
 
-"One sale!" he beamed. His smile reached from ear to ear. "My first!"
+"One sale!" he beamed. His smile reached from ear to ear. "First sale!"
 
 "Nice. But how are you going to scale?"
 
-"Facebook Ads!" and then he added: "You have to be really, really careful on how you spend. Money fly away if you are not careful."
+"Facebook Ads!" and then he added: "You have to really careful on how spending. Money fly away if not careful."
 
-Sage advice, despite the choppy Malu-English.
+Sage advice, despite the choppy English.
 
 I noted to myself, that money is viewed very differently, if it is your own, and if you are seeking a return on it, than if you were a government department, spending someone else's money, with an indifference as to whether a return is generated. 
 
@@ -41,10 +41,16 @@ But he did not lament. His solution was sublime, and novel!
 
 "**I'm taking cash, BABEY!**"
 
-I laughed and marveled at his ingenuity. And I thought: what a fool I am: running off to pay my taxes so that the government, in its glorious wisdom, can spend it profitably: (i) on ships that sink when loaded, (ii) and on submarines that cannot sink, (iii) on submarines that take 20 years to get operational, and are then moored because there aren't enough people to man them; (iv) on internet infrastructure that is obsolete and slow, and expensive, (v) and on overpriced hotel quarantine programs -- whom nobody is in charge of, and whom nobody has any memory of who was in charge of the program, whatsoever. Were I to continue writing, I would quickly and irredeemably deplete the vast forests of the Amazon.
+I laughed and marveled at his ingenuity. A fair dinkum entrepreneur. And I thought: what a fool I am: running off to pay my taxes so that the government, in its glorious wisdom, can spend it profitably: 
 
-It was then that I realised that our little socialist paradise is somewhat doomed: when honest, God-fearing men, resort to such measures to earn a living: how can this republic survive with it's wanton expenditures uncurtailed? 
+    (i) on ships that sink when loaded, 
+    (ii) and on submarines that cannot sink, 
+    (iii) on submarines that take 20 years to get operational, and are then moored because there aren't enough people to man them; 
+    (iv) on internet infrastructure that is obsolete and slow, and expensive, 
+    (v) and on overpriced hotel quarantine programs -- whom nobody is in charge of, and whom nobody has any memory of who was in charge of the program, whatsoever. Were I to continue writing, I would quickly and irredeemably deplete the vast forests of the Amazon.
 
-It is a miracle of life and business evolution that any business survives here. But not to worry, those that remain will soon be rendered extinct through a bi-partisan coalition of the Australian Labour Party, and the Liberal-National coalition: it's final solution: to entirely eradicate any private enterprise that is left. The goal is to make sure that every hard-working Aussie battler has free stuff given to him by the tax payer. 
+It was then that I realised that our little socialist paradise is somewhat doomed: when honest, law-abiding, God-fearing men, resort to such measures to earn a living: how can this republic survive with it's wanton expenditures uncurtailed? 
 
-Friedman was right: this is a government by the bureaucrat, for the bureaucrat. Little do they know - as has been amply demonstrated by my church friend - that the tax payer is silently revolting: he's bolted from the stables, while the bureaucrat's still sound asleep.
+It is a miracle of life and business evolution that any business survives here. But not to worry, those that remain will soon be rendered extinct through a bi-partisan coalition of the Australian Labour Party, and the Liberal-National coalition: it's FINAL SOLUTION: to entirely eradicate the country of any private enterprise that is left. The goal is to make sure that every hard-working Aussie battler has free stuff given to him by the tax payer, or it's off to the gulags for you,  son!
+
+Friedman was right: this is a government **by** the bureaucrat, **for** the bureaucrat. Little do they know - as has been amply demonstrated by my friend - that the tax payer is silently revolting: he's bolted from the stables, while the bureaucrat's still sound asleep.
