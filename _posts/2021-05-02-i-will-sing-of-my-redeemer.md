@@ -5,7 +5,7 @@ comments: true
 tags:
 - anecdotes
 ---
-I raised my hand to partake in a rendition of: “**I will sing of my redeemer**” as part of the MCSI Youth fellowship. I quickly realised: singing is difficult – if you can’t hold a note; even more so without knowing the tune. Add to that multiple harmonies, and I was down and out for the count. 
+I raised my hand to partake in a rendition of: “**I will sing of my redeemer**” as part of the MCSI Youth fellowship. I quickly realised: singing is difficult, especially if you can’t hold a note; even more so without knowing the tune. Add to that multiple harmonies, and I was down and out for the count. 
 
 When the hymn was offered, I shirked and sat in the pews, rather than embarrassing ~~myself~~ the rest of the crew by singing with them. But just prior to the recital, Anu spoke of its Genesis, and that piqued my interest. I don’t think anyone can do full justice to her raconteur-ship but I shall attempt my own version:
 
