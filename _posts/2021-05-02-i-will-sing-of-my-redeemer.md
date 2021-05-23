@@ -19,12 +19,15 @@ When the hymn was offered, I shirked and sat in the pews, rather than embarrassi
 
 > “I must go back to get my wife!” he cried to his fellow passengers, as they struggled to hold him back.
 
-> “Don’t go!” they pleaded with him, “……….you cannot save her because the fire is too hot, and if you attempt it, you will die as well!”
+> “Don’t go!” they pleaded with him, “...you cannot save her because the fire is too hot, and if you attempt it, you will die as well!”
 
 > “Then if she dies,” said the noble Bliss, “I will die with her!”
-> The survivors watched in horror as he broke through his restrainers, ran headlong into the inferno. People attempt to catch him, but were failed by the intense radiation. 
+> 
+> The survivors watched in horror as he broke through, from those restraining him, and headlong into the inferno. People attempt to catch him, but were failed by the intense radiation. 
 
-> Sadly, Bliss did not retrieve his wife. The only thing salvaged was his suitcase. And inside, was a hymn he was working on, in its nascent state. The lyrics were complete, but there were no notes. In his memory, a musician added notes to his lyrics. We can only guess the tune that Bliss would have added to it himself. Perhaps we may find out the next we see him? 
+> Sadly, Bliss did not retrieve his wife. 
+> 
+> Very little survived the fire. But of Bliss's possessions, his suitcase survived, and was salvaged. Inside was found a hymn he was working on, in its nascent state. The lyrics were complete, but there were no notes. In his memory, a musician added notes to his lyrics. We can only guess the tune that Bliss would have added to it himself. Perhaps we may find out the next we see him? 
 
 > Bliss may not have survived, but he lives on, through his hymn. 
 
