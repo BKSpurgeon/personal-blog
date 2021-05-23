@@ -25,7 +25,9 @@ When the hymn was offered, I shirked and sat in the pews, rather than embarrassi
 > 
 > The survivors watched in horror as he broke free from his captors and charged headlong into the inferno. Those who attempted to follow Bliss were thwarted by the intense heat, and were driven back
 
-> Bliss entered the carriage, but never came out of it...but his suitcase did....inside was found a hymn he was working on, in its nascent state. The lyrics were complete, but there were no notes nor music to accompany them. 
+> Bliss entered the carriage, but never came out of it.
+> 
+> Very little survived the fire, but his suitcase did. Inside was found a hymn he was working on, in its nascent state. The lyrics were complete, but there were no notes nor music to accompany them. 
 > 
 > These were later added by one of his contemporaries, and that is the tune we know today. We can only guess the tune that Bliss would have added to it himself, if he survived the accident. Perhaps we may find out the next we see him? 
 
