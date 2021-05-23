@@ -23,7 +23,7 @@ When the hymn was offered, I shirked and sat in the pews, rather than embarrassi
 
 > “Then if she dies,” said the noble Bliss, “I will die with her!”
 > 
-> The survivors watched in horror as he broke through, from those restraining him, and headlong into the inferno. People attempt to catch him, but were failed by the intense radiation. 
+> The survivors watched in horror as he broke through, from those restraining him, and headlong into the inferno. People attempted to catch him, but were thwarted by the intense heat. 
 
 > Sadly, Bliss did not retrieve his wife. 
 > 
