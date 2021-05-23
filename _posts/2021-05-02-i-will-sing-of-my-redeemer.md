@@ -11,7 +11,7 @@ When the hymn was offered, I shirked and sat in the pews, rather than embarrassi
 
 ### The Genesis of the Hymn: “I will sing of my redeemer”
 
-“I will sing of my redeemer” was written by Philip Bliss – a musician and an itinerant gospel singer in America. He lived during the mid 1800s, when railway travel was dangerous. Railway tracks often had to cross multiple ravines, and rivers, over trestle bridges (not made of metal) in order to speedily and efficiently conduct their cargo. While travelling, Bliss would pack his most basic and precious items in a metal suitcase, which was liable to survive falls, and even fires.
+> “I will sing of my redeemer” was written by Philip Bliss – a musician and an itinerant gospel singer in America. He lived during the mid 1800s, when railway travel was dangerous. Railway tracks often had to cross multiple ravines, and rivers, over trestle bridges (not made of metal) in order to speedily and efficiently conduct their cargo. While travelling, Bliss would pack his most basic and precious items in a metal suitcase, which was liable to survive falls, and even fires.
 
 > On the 29 December 1876, Bliss and his wife boarded Pacific Express train. I do not know where they were going, but as they were passing Ashtabula, Ohio, a trestle bridge over which the train was crossing, collapsed catastrophically. The ravine below, swallowed the train, while it caught ablaze.
 
